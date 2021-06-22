@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @The-Captain-Moo
+- 👋 Hi, I’m @TheCaptainMoo
 - 👀 I’m interested in toasties
 - 🌱 I’m currently learning how to make toasties
 - 💞️ I’m looking to collaborate on making toasties
